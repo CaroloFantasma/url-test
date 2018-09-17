@@ -1,0 +1,20 @@
+POLÍTICA DE PRIVACIDAD
+La presente política de privacidad establece los términos en que "Prueba" usa y protege la información que es proporcionada por sus usuarios al momento de utilizar el sitio web. Estamos comprometidos con la seguridad de sus datos. Cuando le pedimos llenar los campos de información personal con la cual usted pueda ser identificado, lo hacemos asegurando que sólo se empleará de acuerdo con los términos de este documento; sin embargo, estos pueden cambiar con el tiempo o ser actualizados, por lo que recomendamos y enfatizamos revisar continuamente esta página. Información que es recogida
+
+Nuestro sitio web podrá recoger información personal por ejemplo: nombre e información de contacto como su dirección de correo electrónico; adicionalmente podrá recopilar información proveniendo de proveedores como Facebook o Google, al hacer ingreso con este tipo de cuentas.
+
+Uso de la información recogida
+
+Nuestro sitio web emplea la información con el fin de proporcionar el mejor servicio posible, particularmente para mantener un registro de usuarios y hacer mejoras en el producto. Es posible que sean enviados correos electrónicos para realizar validaciones de cuentas.
+
+Enlaces a Terceros
+
+Este sitio web pudiera contener enlaces a otros sitios que pudieran ser de su interés. Una vez que usted de clic en estos enlaces y abandone nuestra página, ya no tenemos control sobre al sitio al que es redirigido y por lo tanto no somos responsables de los términos o privacidad ni de la protección de sus datos en esos otros sitios terceros. Dichos sitios están sujetos a sus propias políticas de privacidad por lo cual es recomendable que los consulte para confirmar que usted está de acuerdo con estas.
+
+Control de su información personal
+
+En cualquier momento usted puede restringir la recopilación o el uso de la información personal que es proporcionada a nuestro sitio web. Cada vez que se le solicite rellenar un formulario, como el de alta de usuario, puede marcar o desmarcar la opción de recibir información por correo electrónico. En caso de que haya marcado la opción de recibir nuestro boletín o publicidad usted puede cancelarla en cualquier momento.
+
+Esta compañía no venderá, cederá ni distribuirá la información personal que es recopilada sin su consentimiento, salvo que sea requerido por un juez con un orden judicial.
+
+"Prueba" Se reserva el derecho de cambiar los términos de la presente Política de Privacidad en cualquier momento.
